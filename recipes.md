@@ -13,16 +13,17 @@ Rinse Blue Soap Recipes and Ingredients
  - 100 grams  |  Sunflower Oil
 
 #### What tools we need:
-  - Digital scale (this is important for making a soap that is not too harsh or too oily)
+  - Digital scale *NEEDED* (this is important for making a soap that is not too harsh or too oily)
   - Glass jars and bowls
-  - Stick blender 
+  - Stick blender (*Z has one*)
   - Plastic cups (optional)
-  - Metal spoon
+  - Metal spoon: https://www.amazon.com/Chef-Craft-10230-1-Piece-Stainless/dp/B001C26QTY
   - Wooden spoon
-  - Spatula
+  - Spatula (*Z has one*)
   - Soap molds (or an old cardboard box lined with parchment paper). I have green flower molds, red silicon rose molds and basic bar soap molds.
-  - Gloves and sunglasses or eyewear
-  - White vinegar for neutralizing the lye mixture if it spills on anything.
+  - Gloves: https://www.amazon.com/AMMEX-GPNB46100-BX-GlovePlus-Disposable-Industrial/dp/B004BR8KB4/
+  - Eyewear: https://www.amazon.com/gp/product/B003OBZ63S/
+  - White vinegar (Neutralizing the lye mixture if it spills)
 
 #### Links
   - Sodium Hydroxide (Lye): https://www.amazon.com/gp/product/B0084UUG16
@@ -70,7 +71,7 @@ Rinse Blue Soap Recipes and Ingredients
   This section is coming soon! Thanks Zee! <3 
 
 
-### Other Ingredients
+#### Other Ingredients
   - Cocoa Butter: https://www.amazon.com/gp/product/B00L3FP10K/
   - Mango Butter: https://www.amazon.com/gp/product/B015X0NP9O/
   - Shea Butter: https://www.amazon.com/gp/product/B00D9NV2D4/
@@ -86,3 +87,8 @@ Rinse Blue Soap Recipes and Ingredients
   - Epoxy Resin Dye (pigments set): https://www.amazon.com/gp/product/B0759DH4ZG/
 
  - Samples of multiple Bronner Soaps: https://www.amazon.com/Dr-Bronners-Sampler-Eucalyptus-Peppermint/dp/B06Y4QD13Q/
+
+#### Other Tools
+  - Metal spoon: https://www.amazon.com/Chef-Craft-10230-1-Piece-Stainless/dp/B001C26QTY
+  - Gloves: https://www.amazon.com/AMMEX-GPNB46100-BX-GlovePlus-Disposable-Industrial/dp/B004BR8KB4/
+  - Eyewear: https://www.amazon.com/gp/product/B003OBZ63S/
