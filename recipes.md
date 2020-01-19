@@ -4,7 +4,7 @@ Rinse Blue Soap Recipes and Ingredients
 ## Bar
   This makes a 1 pound (454 gram) batch with 5% superfat and 33% water reduction.
 
-### Ingredients / Recipe
+#### Ingredients / Recipe
  - 62 grams   |  Sodium Hydroxide (Lye)
  - 124 grams  |  Distilled Water
  - 150 grams  |  Refined Coconut Oil
@@ -12,7 +12,7 @@ Rinse Blue Soap Recipes and Ingredients
  - 225 grams  |  Olive Oil
  - 100 grams  |  Sunflower Oil
 
-### What tools we need:
+#### What tools we need:
   - Digital scale (this is important for making a soap that is not too harsh or too oily)
   - Glass jars and bowls
   - Stick blender 
@@ -24,7 +24,14 @@ Rinse Blue Soap Recipes and Ingredients
   - Gloves and sunglasses or eyewear
   - White vinegar for neutralizing the lye mixture if it spills on anything.
 
-### What to do:
+#### Links
+  - Sodium Hydroxide (Lye): https://www.amazon.com/gp/product/B0084UUG16
+  - Refined Coconut Oil: https://www.amazon.com/gp/product/B017DT4HM2/
+  - Shea Butter: https://www.amazon.com/gp/product/B00D9NV2D4/
+  - Olive Oil: https://www.amazon.com/Kirkland-Signature-Extra-Virgin-Olive/dp/B0027EOTKO/
+  - Sunflower Oil: *NEED TO FIND*
+
+#### What to do:
   1. Get all all of your ingredients and weigh them out to correct amounts. It is important to do this before you begin as soap making is a time sensitive process and there isn’t time to stop and measure in between.
   
   2. Combine liquid oils: olive oil and jojoba oil and set aside in a small jar or bowl.
@@ -49,7 +56,7 @@ Rinse Blue Soap Recipes and Ingredients
 
   12. Now for the patience… your soap needs to cure! It isn’t ready yet. Place on a flat and well ventilated area for 30 days. Turn it over a few times during this time period.
 
-### How To Customize
+#### How To Customize
   - Essential oils
   - Dried herbs (for texture or color)- my favorites are dried lavender flowers, chamomile flowers or calendula, though any dried her could be added.
   - Colors– natural color options I’ve tried are spices and plant materials like spirulina, turmeric, cocoa, ground coffee (my favorite), hibiscus, beet root and others.
@@ -61,3 +68,21 @@ Rinse Blue Soap Recipes and Ingredients
 
 ## Dish
   This section is coming soon! Thanks Zee! <3 
+
+
+### Other Ingredients
+  - Cocoa Butter: https://www.amazon.com/gp/product/B00L3FP10K/
+  - Mango Butter: https://www.amazon.com/gp/product/B015X0NP9O/
+  - Shea Butter: https://www.amazon.com/gp/product/B00D9NV2D4/
+
+  - Castor Oil: https://www.amazon.com/NOW-Foods-7675-Castor-16-Ounce/dp/B0013TM9UQ/
+  - Coconut Oil: https://www.amazon.com/gp/product/B017DT4HM2/
+  - Avocado Oil: https://www.amazon.com/gp/product/B007XA49O8/
+  - Olive Oil: https://www.amazon.com/Kirkland-Signature-Extra-Virgin-Olive/dp/B0027EOTKO/
+  - Jojoba Oil: https://www.amazon.com/gp/product/B0019LTGOU/
+
+  - Sal Suds Biodegradable Cleaner: https://www.amazon.com/Dr-Bronners-Suds-Biodegradable-Cleaner/dp/B00016QTYO/
+  - Soap Mold (small): https://www.amazon.com/gp/product/B003VFWWWU/
+  - Epoxy Resin Dye (pigments set): https://www.amazon.com/gp/product/B0759DH4ZG/
+
+ - Samples of multiple Bronner Soaps: https://www.amazon.com/Dr-Bronners-Sampler-Eucalyptus-Peppermint/dp/B06Y4QD13Q/
