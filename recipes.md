@@ -18,7 +18,7 @@ Rinse Blue Soap Recipes and Ingredients
   - Stick blender (*Z has one*)
   - Plastic cups (optional)
   - Metal spoon: https://www.amazon.com/Chef-Craft-10230-1-Piece-Stainless/dp/B001C26QTY
-  - Wooden spoon
+  - Wooden spoon (*Z has one*)
   - Spatula (*Z has one*)
   - Soap molds (or an old cardboard box lined with parchment paper). I have green flower molds, red silicon rose molds and basic bar soap molds.
   - Gloves: https://www.amazon.com/AMMEX-GPNB46100-BX-GlovePlus-Disposable-Industrial/dp/B004BR8KB4/
@@ -63,12 +63,13 @@ Rinse Blue Soap Recipes and Ingredients
   - Colors– natural color options I’ve tried are spices and plant materials like spirulina, turmeric, cocoa, ground coffee (my favorite), hibiscus, beet root and others.
   - Texture add ins– like dry freshly ground coffee, healing clays for silky clay soap, sea salt soap, oatmeal or any other ingredient.
 
+
 ## Hand
   This section is coming soon! 
 
 
 ## Dish
-  This section is coming soon! Thanks Zee! <3 
+  This section is coming soon! Thanks Z! <3 
 
 
 #### Other Ingredients
