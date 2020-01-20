@@ -14,6 +14,7 @@ Rinse Blue Soap Recipes and Ingredients
 
 #### What tools we need:
   - Digital scale *NEEDED* (this is important for making a soap that is not too harsh or too oily)
+  - Scale https://www.amazon.com/gp/product/B0113UZJE2
   - Glass jars and bowls
   - Stick blender (*Z has one*)
   - Plastic cups (optional)
@@ -24,7 +25,7 @@ Rinse Blue Soap Recipes and Ingredients
   - Gloves: https://www.amazon.com/AMMEX-GPNB46100-BX-GlovePlus-Disposable-Industrial/dp/B004BR8KB4/
   - Eyewear: https://www.amazon.com/gp/product/B003OBZ63S/
   - White vinegar (Neutralizing the lye mixture if it spills)
-
+  
 #### Links
   - Sodium Hydroxide (Lye): https://www.amazon.com/gp/product/B0084UUG16
   - Refined Coconut Oil: https://www.amazon.com/gp/product/B017DT4HM2/
