@@ -117,3 +117,7 @@ https://www.pipingrock.com/essential-oils/lavender-100-pure-essential-oil-16-fl-
   - Metal spoon: https://www.amazon.com/Chef-Craft-10230-1-Piece-Stainless/dp/B001C26QTY
   - Gloves: https://www.amazon.com/AMMEX-GPNB46100-BX-GlovePlus-Disposable-Industrial/dp/B004BR8KB4/
   - Eyewear: https://www.amazon.com/gp/product/B003OBZ63S/
+
+#### Other Useful Links
+  - Pipingrock Supplier: https://www.pipingrock.com/lavender-oil
+  
