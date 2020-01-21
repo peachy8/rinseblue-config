@@ -91,11 +91,11 @@ Rinse Blue Soap Recipes and Ingredients
   - Mango Butter: https://www.amazon.com/gp/product/B015X0NP9O/
   - Shea Butter: https://www.amazon.com/gp/product/B00D9NV2D4/ - $15.95 / 16 oz  | 1.00 per oz
 
-  - Castor Oil: https://www.amazon.com/NOW-Foods-7675-Castor-16-Ounce/dp/B0013TM9UQ/ - 5.52 / 16oz | $0.35 per fl
-  - Coconut Oil: https://www.amazon.com/gp/product/B017DT4HM2/ - 15.99 / 84 fl | 0.19 per fl
-  - Avocado Oil: https://www.amazon.com/gp/product/B007XA49O8/ - 10.99 / 33.8 fl oz | 0.32 per fl
+  - Castor Oil: https://www.amazon.com/NOW-Foods-7675-Castor-16-Ounce/dp/B0013TM9UQ/ - 13.94 / 16oz | $0.35 per fl
+  - Coconut Oil: https://www.amazon.com/gp/product/B017DT4HM2/ - 10.00 / 84 fl | 0.19 per fl
+  - Avocado Oil: https://www.amazon.com/gp/product/B007XA49O8/ - 8.99 / 33.8 fl oz | 0.32 per fl
   - Olive Oil: https://www.amazon.com/Kirkland-Signature-Extra-Virgin-Olive/dp/B0027EOTKO/ - 15.49 / 67.628 fl oz | 0.22 per fl
-  - Jojoba Oil: https://www.amazon.com/gp/product/B0019LTGOU/ - $8.09 / 4 Fl Oz | 2.02 per fl or 1.10 per fl if buy in big bulk
+  - Jojoba Oil: https://www.amazon.com/gp/product/B0019LTGOU/ - $8.00 / 4 Fl Oz | 2.02 per fl or 1.10 per fl if buy in big bulk
 
   - Sal Suds Biodegradable Cleaner: https://www.amazon.com/Dr-Bronners-Suds-Biodegradable-Cleaner/dp/B00016QTYO/
   - Soap Mold (small): https://www.amazon.com/gp/product/B003VFWWWU/ - 3oz bars
