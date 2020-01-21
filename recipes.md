@@ -70,7 +70,7 @@ Rinse Blue Soap Recipes and Ingredients
   This section is coming soon! 
 
 
-## Dish
+## Natural Liquid Dish Soap Recipe
   Sal Suds Dilutions Cheat Sheet https://www.lisabronner.com/wp-content/uploads/2012/10/Sal-Suds-Dilution-Cheat-Sheet-v1-1.pdf
   Dish recipe made by Z!
 
@@ -84,6 +84,13 @@ Rinse Blue Soap Recipes and Ingredients
 - 1.5 fl oz hot water
 - large pot
 - dish soap dispenser
+
+Instructions
+1. In a small pot heat the water and salt, stirring frequently until everything is completely dissolved. Remove the pot from the heat and pour the contents into a small bowl. Set the salt mixture aside. I used kosher salt and it wouldn’t completely dissolve, so I just strained the residual salt pieces out.
+2. Add the washing soda and 1 and 1/3 distilled water to the pot and heat just until dissolved.
+3. Add the Sal Suds, washing soda and water, and essential oils to a dish soap dispenser. If your container has a small opening, then it works best to mix this in a glass mason jar.
+4. Add 1 tablespoons of the salt water to the soap and stir. It will turn cloudy and thicken. Add another tablespoon of salt water mixture if you want it thicker. Keep in mind that it may thicken more over time.
+5. Pour the mixture into a soap dispenser.
 
 
 #### Other Ingredients
