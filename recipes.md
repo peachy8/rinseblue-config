@@ -93,3 +93,13 @@ Rinse Blue Soap Recipes and Ingredients
   - Metal spoon: https://www.amazon.com/Chef-Craft-10230-1-Piece-Stainless/dp/B001C26QTY
   - Gloves: https://www.amazon.com/AMMEX-GPNB46100-BX-GlovePlus-Disposable-Industrial/dp/B004BR8KB4/
   - Eyewear: https://www.amazon.com/gp/product/B003OBZ63S/
+  
+#### Expiriment
+- 16.9 oz Olive Oil
+- 7.5 oz Coconut Oil
+- 6.83 oz Distilled water
+- 3.14 oz Lye
+- 112.33 oz Organic grind coffee
+- 26 drops of peppermint oil
+- 12 mold soaps 
+Wait time : 12-24 hours
